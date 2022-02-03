@@ -1,6 +1,6 @@
-🌷Floral Flair🌷 - (ibex80)\n
-Additional Additions - (dqu1jjj)
-Additional Bars [FABRIC] - (Gamma1772)
+🌷Floral Flair🌷 - (ibex80)  
+Additional Additions - (dqu1jjj)  
+Additional Bars [FABRIC] - (Gamma1772)  
 Adorn - (Juicebus)
 Advancement Plaques [Fabric] - (Grend_G)
 AdventureZ - (Globox_Z)
